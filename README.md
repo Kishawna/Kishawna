@@ -1,4 +1,4 @@
-# KishawnaB
+# Kishawna
 Hey there 👋
 My name is Kishawna. 
 * I am an IT major with a concentration in cybersecurity at UNCW 😀. 
